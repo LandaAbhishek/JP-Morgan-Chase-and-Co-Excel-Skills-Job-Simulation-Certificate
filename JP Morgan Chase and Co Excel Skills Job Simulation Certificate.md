@@ -1,6 +1,6 @@
-![](../Downloads/Screenshot_14-6-2024_185947_.jpeg)
-
+![Certificate](https://github.com/LandaAbhishek/JP-Morgan-Chase-and-Co-Excel-Skills-Job-Simulation-Certificate/assets/170428965/44e5b537-8fc2-4aaa-a22c-5364762bd11a)
  
+
 
 **JP Morgan Chase & Co. Excel Skills Job Simulation on Forage - November 2023**
 
